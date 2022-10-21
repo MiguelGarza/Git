@@ -1,0 +1,1 @@
+oye, son unos cambios en los que estoy trabajando, pero aun no estoy listos, si te los mando no van a jalar 
